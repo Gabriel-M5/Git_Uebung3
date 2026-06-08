@@ -13,3 +13,5 @@ dann gehts los.
 Vielleicht L17 machen.
 
 und raus gehen.
+
+und schwimmen gehen.
