@@ -17,3 +17,5 @@ und raus gehen.
 und schwimmen gehen.
 
 und spass haben.
+
+was habe ich geändert
